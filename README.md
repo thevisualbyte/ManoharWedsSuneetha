@@ -1,2 +1,0 @@
-# ManoharWedsSuneetha
-Manohar Weds Suneetha
